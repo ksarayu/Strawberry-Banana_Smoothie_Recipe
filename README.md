@@ -1,1 +1,1 @@
-# Strawberry-Banana_Smoothie_Recipe
+Hi everyone!! This is a recipe for one of the most heavenly tasting smoothies on earth....Strawberry-Banana smoothies!!! I hope this recipe will brighten your day like it does mine!! Lots of love - Sarayu 💕💕💕
